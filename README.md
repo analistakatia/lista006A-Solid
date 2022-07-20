@@ -1,0 +1,1 @@
+# lista006A-Solid
